@@ -1,3 +1,5 @@
+#DONE
+
 ##Zdrasti
 
 ###Prizovavame satanata:
